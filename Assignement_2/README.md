@@ -1,1 +1,1 @@
-You can try this app here : https://ugly-quail-34.loca.lt.
+You can try this app here : https://bad-mule-29.loca.lt.
